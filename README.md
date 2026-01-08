@@ -1,3 +1,3 @@
 Hello 
-![Visitor Count](https://profile-counter.glitch.me/{imissuNing}/count.svg)
+![Visitors](https://profile-counter.glitch.me/{imissuNing}/count.svg)
 
