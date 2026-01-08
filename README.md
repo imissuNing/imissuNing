@@ -22,7 +22,9 @@
 ## DNI
 - Proshipper, darkshipper, problematics
 - Support AI, support zoophile, pedos, rape, incest
-- Rape/racist joke
+- Homophobe, anti-furries
+- Rape/racist joke, ableist, sexist
+- Ship Frans (Frisk x Sans) & FreshPaper (PJ x Fresh)
 - Under 12 years old/ Over 20+
 ## Interact with caution please!
 
