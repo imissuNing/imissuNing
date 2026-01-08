@@ -1,6 +1,2 @@
 Hello 
-    <div align="center">
-        <img alt="Visitor Stats" 
-            src="https://widgetbite.com/stats/imissuNing"/>  
-    </div>
-
+![Visitors](https://profile-counter.glitch.me/{imissuNing}/count.svg)
