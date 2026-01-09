@@ -1,14 +1,14 @@
 
- [![Typing SVG](https://readme-typing-svg.demolab.com?font=Outfit&weight=300&size=21&pause=1000&color=F09339&width=435&lines=I+don't+care+if+it+hurts+o_O;I+wanna+have+control+>_<;I+want+a+perfect+body+T_T;With+a+matching+soul+^_^;I+want+you+to+notice+°ㅁ°;When+I'm+not+here+^_<;You're+so+freakin'+special+★;I+wish+I+was+special+☆;But+I'm+a+creep+!@_@)](https://git.io/typing-svg)       
+ [![Typing SVG](https://readme-typing-svg.demolab.com?font=Outfit&weight=300&size=21&pause=1000&color=FFFF&width=435&lines=I+don't+care+if+it+hurts+o_O;I+wanna+have+control+>_<;I+want+a+perfect+body+T_T;With+a+matching+soul+^_^;I+want+you+to+notice+°ㅁ°;When+I'm+not+here+^_<;You're+so+freakin'+special+★;I+wish+I+was+special+☆;But+I'm+a+creep+!@_@)](https://git.io/typing-svg)       
  <p align="right">
    <sub>meow</sub>
 
-## ── ★ ˙ ̟ !! ──── . ──────────── . ──────────── . ──────── ★ ˙ ̟  .  ˙ . ────   .  ˙ .
+## ── ★ ˙ ̟ !! ──── . ──────────── . ──────────── . ──────── ★ ˙ ̟  .  ˙ . ────   .  ˙
 <p align="left">
  <img src="https://github.com/imissuNing/imissuNing/blob/main/2026_01_08_13n_Kleki.png" width=35% /> <sub>art by: @rizukii_0 on Twitter dot com</sub>
 </p> 
   
-## Hello!! ^_^
+## 💫 Hello!! ^_^
 - Welcome to my profile!
 - My name's Harley, you can call me Harley or Mew!!
 - I'm a minor, if you have MDNI in your list please don't int with me
@@ -19,14 +19,18 @@
   <p align="left">
    <img src="https://github.com/imissuNing/imissuNing/blob/main/3c1c6a9b319366b83a2e9c22216f79ec.jpg" width="250" height="100">
 
-## DNI
+## 📞 DNI
 - Proshipper, darkshipper, problematics
 - Support AI, support zoophile, pedos, rape, incest
 - Homophobe, anti-furries
 - Rape/racist joke, ableist, sexist
 - Ship Frans (Frisk x Sans) & FreshPaper (PJ x Fresh)
 - Under 12 years old/ Over 20+
-## Interact with caution please!
+
+## 💭 BYF/B4 INT
+- I make kys/kms/sexjokes so if you're uncomfortable, just tell me!
+- Super duper introverted so I almost never take the initiative to start a conversation with anyone.
+- I'm not a positive person so please ***interact with care! T-T***
 
 
 <p align="center">
