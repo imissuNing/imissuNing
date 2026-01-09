@@ -27,16 +27,17 @@
 - Ship Frans (Frisk x Sans) & FreshPaper (PJ x Fresh)
 - Under 12 years old/ Over 20+
 
-## 💭 BYF/B4 INT
+## 💭 BEFORE INT
 - I make kys/kms/sexjokes so if you're uncomfortable, just tell me!
 - Super duper introverted so I almost never take the initiative to start a conversation with anyone.
+- Terrible in keeping conversation.
 - I'm not a positive person so please ***interact with care! T-T***
 
 
 <p align="center">
   <img src="https://github.com/imissuNing/imissuNing/blob/main/GE8VmL5XEAAiW8o.png" width=36%> <sub>art by: @moon67780 on Twitter dot com</sub>
   
-![Profile-views](https://komarev.com/ghpvc/?username=imissuNing&color=f09339&style=plastic&label=visitors)
+![Profile-views](https://komarev.com/ghpvc/?username=imissuNing&color=f0f0f0&style=plastic&label=visitors)
   
 <p align="left">
   <img src="https://github.com/imissuNing/imissuNing/blob/main/e661567496eb971ef140351349fd4399.gif" alt="Alt text" width="25" height="25"
