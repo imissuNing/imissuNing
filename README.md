@@ -15,7 +15,7 @@
 - Feel free to interact with me! *I don't bite*
 - Mostly at the UT area
 - ***ERRORINK IS MY COMFORT SHIP ERRORINK IS MY COMFORT SHIP ERRORINK IS MY COMFORT SHIP***
-- [Strawpage](https://imissuning.straw.page) ── [Pronouns page](https://en.pronouns.page/@mewmewz) ── [Instagram](https://instagram.com/imissuning)
+- [Strawpage](https://imissuning.straw.page) ── [Pronouns page](https://en.pronouns.page/@besideu_) ── [Instagram](https://instagram.com/imissuning)
   <p align="left">
    <img src="https://github.com/imissuNing/imissuNing/blob/main/3c1c6a9b319366b83a2e9c22216f79ec.jpg" width="250" height="100">
 
