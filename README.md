@@ -3,7 +3,7 @@
 ![](https://komarev.com/ghpvc/?username=imissuning&label=weed&style=plastic&color=000000)
 
 <p align="center">
- <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Oswald&weight=500&size=35&pause=1000&color=F7F7F7&center=true&vCenter=true&repeat=false&width=600&height=80&lines=MY+LIFE+IS+A+PARTY!!!!" alt="Typing SVG" /></a>
+ <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Oswald&weight=500&size=25&pause=1000&color=F7F7F7&center=true&vCenter=true&repeat=false&width=600&height=80&lines=MY+LIFE+IS+A+PARTY!!!!" alt="Typing SVG" /></a>
  <p align="center">
   <img src="https://github.com/imissuNing/imissuNing/blob/main/Kh%C3%B4ng%20C%C3%B3%20Ti%C3%AAu%20%C4%90%E1%BB%81154_20260416211117.png" width=300>
   
